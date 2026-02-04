@@ -1,0 +1,2 @@
+# seka
+Uci seko mamatiku
